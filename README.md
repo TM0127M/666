@@ -1,0 +1,9 @@
+# darsda-qilganimiz
+# darsda-qilganimiz
+# suniyintelekt
+# suniyintelekt
+# suniyintelekt
+# suniyintelekt
+# dars
+# suniyintelekt
+# suniyintelekt
